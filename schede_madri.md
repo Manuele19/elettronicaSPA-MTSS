@@ -1,0 +1,6 @@
+2070633
+2068236
+Biostar Racing B550GTQ
+Gigabyte Z490 AORUS Master
+ASRock X570 Taichi
+EVGA Z490 FTW
